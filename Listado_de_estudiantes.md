@@ -1,2 +1,11 @@
 Listado de estudiantes que no van a sacar 0 en esta actividad. 
-Santiago Valencia
+Karol Trejos Obvioo
+
+
+
+
+
+
+
+
+Soy Santiago Valencia 
